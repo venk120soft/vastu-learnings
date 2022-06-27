@@ -18,7 +18,7 @@ width:length => 1:2 is good with east or west facing
 Second best is Square plot which is 1:1
 
 ## 2 Cut or extensions to watch
-It is best not have cut or extensions to the plot have any defects. Though below are acceptable
+It is best not to have cut or extensions to the plot. Though below are acceptable
 
 North East Extension is acceptable
 
