@@ -40,7 +40,7 @@ Rectangle:
 ![image](https://user-images.githubusercontent.com/26470711/174481340-0742763d-ae45-4138-8980-97cec477a385.png) | ![image](https://user-images.githubusercontent.com/26470711/174481349-99f3e520-247b-459a-8f15-733382538bcb.png) | ![image](https://user-images.githubusercontent.com/26470711/174481317-f248aa21-ad5b-4e4c-9cd8-3f481e9c5c58.png)
 
 Once everything looks
-**Plot is divided into 9 parts in each direction**
+** Plot is divided into 9 parts in each direction**
 For Rectanngle types make sure find the 9 parts properly(https://www.youtube.com/watch?v=EMDgK5WPCMU)
 
 4.5 is the middle for any direction
@@ -56,13 +56,24 @@ North (exact 4.5) is the kubera place, it's a better place for keeping the locke
 https://www.youtube.com/watch?v=p73akFBAZhs
 
 ## Where to sleep owner of the house?
-South West(Nairuthi) is the best place to sleep. and towards south direction and make sure there is no, water tank or bheam is not there
+South West(Nairuthi) is the best place to sleep. and towards south direction and make sure there is no, water tank or bheam is not on top
 https://www.youtube.com/watch?v=IO1XfLdlDy8
 
 South-West is also good place to keep the Money locker but no 1 direction for Money storing is north(Uttaram) kubera stana
 
+Head towards South direction is good => Owner should sleep in South West (Nairuthi) direction always, bed should touch to South direction
+
 ## Septic tank where to construct
-Septic tank or toilets are not good option to keep it inside home. But if at all it is required then North- West(Vayuvyam) towards north(uttaram) 2.6 to 4 places can be taken or
-South- East(Aagneyam) 2.6 to 4 towards east(Thurpu) can be taken for septic tank construction
+Septic tank or toilets are not good option to keep it inside home. But if at all it is required then North- West(Vayuvyam) towards north(uttaram) 3 to 4 places can be taken 4th place is recommended
+
+South- East(Aagneyam) 3 to 4 towards east(Thurpu) can be taken for septic tank construction. 4th place is recommended
+
 ## Compound walls
 ![image](https://user-images.githubusercontent.com/26470711/175749840-0a07078e-57f1-4a32-84b4-4aa888d6c5dd.png)
+
+## Sleeping directions
+1) Head towards South direction is good => Owner should sleep in South West (Nairuthi) direction always, bed should touch to South direction
+2) Head towards East direction is good => Bed should not touch East direction
+## Photos to keep in drections
+1) Expired parents(Ancestors) photos should keep in south direction should face to north and be placed above 6 to 7 feet from the floor. And not in main hall
+2) Main door entrance Kamadhenu or Guru(Sai baba) photo can be placed towards East direction and faced to west
