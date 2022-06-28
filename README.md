@@ -45,10 +45,27 @@ For Rectanngle types make sure find the 9 parts properly(https://www.youtube.com
 
 4.5 is the middle for any direction
 
-North East(Eeshanyam) is best place for Pooja. 1 to 4.5 any place towards East is very good for pooja https://www.youtube.com/watch?v=Gf7QESiu0Hg
+1) North East(Eeshanyam) is best place for Pooja. 1 to 4.5 any place towards East is very good for pooja https://www.youtube.com/watch?v=Gf7QESiu0Hg
+2) In some videos: North- East is worst place to place Pooja mandir https://www.youtube.com/watch?v=E-yfwqUG7DA 
+
+Both seems to be reasonable, if we want to place pooja gadhi in NE it is best to keep it in 4 to 5 place. and do not build gadhi instead keep it in wall
+
+becoz we endup closing the doors in NE hence NE should be open every time and NE it feels like we are decreasing NE place hence 
+
+So to avoid this confusions West side towards NW 4th place we can build the pooja gadhi 
+
+
+**
+Vinayaka idol trunk in home should always be left side(https://www.youtube.com/watch?v=AP3FhY-UOcU)**
+<img width="546" alt="image" src="https://user-images.githubusercontent.com/26470711/176054406-6a1cafeb-82f0-421c-b617-9d594cf6fbee.png">
+We should not have 2 or more of same god idols or photos. only 1 of kind is okay. 
+Shiv ling is having lot of things to take care hence, don't keep shiva linga inside home
+Krishna, Vinayaka idols should always be single not with their wifes and krishna should not be with flute
+
+Stone, copper, silver, gold idols only we should use, In case if we want to take out any idols or photos from pooja room then we should send them in to any tempples
 
 North East(Eeshanyam) is jala sthanam we should put sump/Bavi/Boor
-In between 3 to 4.5 place only in either sides(towards north or east). 2 to 1 parts stricly avoided as it is related vastu bhagavan head
+In between 3 to 4.5 place only in either sides(towards north or east). 2 to 1 parts strictly avoided as it is related vastu bhagavan head
 
 Keep Boar in North direction(Is for Money) of North-East at 3 to 4.5 places and Keep sump in East Direction(Is for fame) 3 to 4.5 places for betterment
 
@@ -77,3 +94,15 @@ South- East(Aagneyam) 3 to 4 towards east(Thurpu) can be taken for septic tank c
 ## Photos to keep in drections
 1) Expired parents(Ancestors) photos should keep in south direction should face to north and be placed above 6 to 7 feet from the floor. And not in main hall
 2) Main door entrance Kamadhenu or Guru(Sai baba) photo can be placed towards East direction and faced to west
+
+
+<img width="571" alt="image" src="https://user-images.githubusercontent.com/26470711/176045394-7205e179-50b8-4042-b990-16d2cb573953.png">
+## Sleeping directions
+
+
+**Muhurtha Sindhu Book is defining all of the below:**
+
+Monday(Pride), Wednesday(Finance) and Saturday(Job) for thala snanam Men and Women . 
+
+Hair cut is good on Monday or Wednes day
+Pournami, amavasya, Padyami 
