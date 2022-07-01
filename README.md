@@ -1,6 +1,6 @@
 # Vastu-Learnings
 
-Vastu Shastr is an ancient shatra to provide us the better health, wealth by following right directions for each action and things to place
+Vastu Shastra is an ancient shatra to provide us the better health, wealth by following right directions for each action and things to place
 
 ## Choosing the plot
 Avoid choosing the plots near Smashanam and temples
@@ -39,7 +39,20 @@ Rectangle:
 
 ![image](https://user-images.githubusercontent.com/26470711/174481340-0742763d-ae45-4138-8980-97cec477a385.png) | ![image](https://user-images.githubusercontent.com/26470711/174481349-99f3e520-247b-459a-8f15-733382538bcb.png) | ![image](https://user-images.githubusercontent.com/26470711/174481317-f248aa21-ad5b-4e4c-9cd8-3f481e9c5c58.png)
 
-Once everything looks
+Once everything looks good get the plan ready 
+
+# Then do Vasthu pooja on the day of muggu based on the plan
+
+Brahmastana is best place for Shiva Panchayathanam Pooja 
+
+- Nairuthi - Vinayaka
+- Vayuvyam  - Parvathi devi
+- Agneyam - Surya dev
+- Eashanyam - Vishnu Jala
+- Center - Aakasham - Brahmastan - Bana lingam
+
+<img width="369" alt="image" src="https://user-images.githubusercontent.com/26470711/176333320-cbaef0dc-c0de-4372-8ada-be37ca5e1c19.png">
+
 ** Plot is divided into 9 parts in each direction**
 For Rectanngle types make sure find the 9 parts properly(https://www.youtube.com/watch?v=EMDgK5WPCMU)
 
