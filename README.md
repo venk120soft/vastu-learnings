@@ -2,6 +2,18 @@
 
 Vastu Shastra is an ancient shatra to provide us the better health, wealth by following right directions for each action and things to place
 
+Minimum sides we need to leave for building the house
+
+- south 2 ft
+- west 3 ft
+- north 4 ft
+- east 5 ft 
+
+Always South should be lower than or equal to West. 
+
+Always North should be lower than or equal to East and greater than south and west . 
+
+Thease are min place to leave, if you have more place feel free to extend more with that dimensions
 ## Choosing the plot
 Avoid choosing the plots near Smashanam and temples
 
@@ -119,3 +131,13 @@ Monday(Pride), Wednesday(Finance) and Saturday(Job) for thala snanam Men and Wom
 
 Hair cut is good on Monday or Wednes day
 Pournami, amavasya, Padyami 
+
+# Jyothishyam:
+
+Mrudhu Nakshatraalu:
+For suka padataniki, nuthana dampathulaku, godava padda tharvatha kalisi povataniki, Mithrulaku sahayam cheyataniki, to resolve any issues or conflicts between 2 people
+Revathi, chitta, mrugashira, anuradha
+
+Stira nakshatralu
+aasthulu konataniki
+
