@@ -124,6 +124,28 @@ South- East(Aagneyam) 3 to 4 towards east(Thurpu) can be taken for septic tank c
 <img width="571" alt="image" src="https://user-images.githubusercontent.com/26470711/176045394-7205e179-50b8-4042-b990-16d2cb573953.png">
 ## Sleeping directions
 
+## Color’s for Home:
+Pure white is not acceptable. 
+Out side: Light half-white/cream, warm white
+
+Inside Home: 
+<img width="672" alt="image" src="https://user-images.githubusercontent.com/26470711/178078639-be34d70a-78a9-41ca-9285-5c5dc2954cd0.png">
+
+For nutral : Just keep, Light half-white/cream or warm white we can use everywhere.
+
+Step out with right leg.
+
+Color therapy for Day to Day life
+
+- Sunday - Golden yellow (Sun color)
+- Monday - White/ perl white color
+- Tuesday - Red shades(Mars color)
+- Wednesday - Grean (Mercury)
+- Thursday - Yellow(Bruhaspathi, Jupiter, Guruvu) pasupu color best for students
+- Friday - Pure White/ Blue color (Shukrudu)
+- Sautrday - Black/Blue (Saturn)
+
+Atleast have Hand kirchif/paper of this type of color
 
 **Muhurtha Sindhu Book is defining all of the below:**
 
@@ -140,4 +162,11 @@ Revathi, chitta, mrugashira, anuradha
 
 Stira nakshatralu
 aasthulu konataniki
+
+# Plants(🌱 🪴) in home
+- Tulasi plant
+- Maruvam plant
+- Pasupu
+- Vepa
+
 
