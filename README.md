@@ -120,6 +120,7 @@ South- East(Aagneyam) 3 to 4 towards east(Thurpu) can be taken for septic tank c
 1) Expired parents(Ancestors) photos should keep in south direction should face to north and be placed above 6 to 7 feet from the floor. And not in main hall
 2) Main door entrance Kamadhenu or Guru(Sai baba) photo can be placed towards East direction and faced to west
 
+https://cloud.smartdraw.com/editor.aspx?templateId=884b74c6-1bd8-41c3-9bff-aafb8b9c4cae&flags=128#depoId=35485893&credID=-39210038
 
 <img width="571" alt="image" src="https://user-images.githubusercontent.com/26470711/176045394-7205e179-50b8-4042-b990-16d2cb573953.png">
 ## Sleeping directions
@@ -169,4 +170,12 @@ aasthulu konataniki
 - Pasupu
 - Vepa
 
+# Mirrors and directions
+https://www.youtube.com/watch?v=FDDbNA3QR3M
+Always prefer to keep Either North or East
+- North wall mirror facing South, we face North - circle (anywhere from NE to NW)
+- East wall mirror facing West, we face East - Rectangular (from NE to SE)
+- South - nope
+- West - nope
 
+We should not have Mirror opposite to us while sleeping (by hari vastu)
